@@ -16,3 +16,12 @@ I also started doing the cadding and designing! Made a simple drawing for the sh
 <img src="https://hc-cdn.hel1.your-objectstorage.com/s/v3/f9fffe2fc1aa91277e72a7333c0a2c991339d271_screenshot_2025-05-28_12.39.37_am.png" width="500">
 
 **Time spent: 8 hours** 
+#
+**28 May - did some things(only a bit though)**
+Today I continued cadding a bit for a short time and tried to figure out a lil bit on how to connect the things together
+
+<img src="https://hc-cdn.hel1.your-objectstorage.com/s/v3/86ce97891335ee9cde3544406b146be2772a0a7f_image.png" width="500">
+
+**Time spent: 30 mmins**
+
+
